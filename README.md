@@ -1,2 +1,3 @@
 # subdomantakeover
-jdflg
+This domain has been takeover
+
